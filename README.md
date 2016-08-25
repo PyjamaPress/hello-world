@@ -9,3 +9,6 @@ Each book is printed when it is ordered, at the touch of a button, and sent dire
 
 mazing technology means you book can be available at over 30,000 bookstores online and around the world.
 
+Contact:
+avenda@pyjamapress.com
++44 (0) 1626 775789
