@@ -7,7 +7,7 @@ Print on demand is simple. You email your word document to Pyjama Press where it
 
 Each book is printed when it is ordered, at the touch of a button, and sent direct to the customer. 
 
-mazing technology means you book can be available at over 30,000 bookstores online and around the world.
+Amazing technology means you book can be available at over 30,000 bookstores online and around the world.
 
 Contact:
 avenda@pyjamapress.com
